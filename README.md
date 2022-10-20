@@ -8,3 +8,5 @@ blah blah blah will update this
 
 ## robot files
 omg look at that symmetry. breathaking, really
+
+![image](https://user-images.githubusercontent.com/19736497/197078306-a8998820-20cd-42f2-9636-38f923390d31.png)
